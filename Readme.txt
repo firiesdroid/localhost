@@ -1,0 +1,2 @@
+Mekanisme
+Secara acak
